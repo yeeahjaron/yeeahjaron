@@ -6,4 +6,5 @@
 <p align="center"><img src="https://file.garden/ZuarN7GXMH8X3x96/Tumblr_l_2837660172630.gif"></p>
 <p align="center"> <a href="https://fluffle.cc/4cvit">My fluffle.cc</a> </p>
 <p align="center"> I usually walk around with a 4CVIT skin on... yeah</p>
+<p align="center"><img src="https://64.media.tumblr.com/d78846282c8f4bf3a6534d53af67ebca/977bd8411900385c-41/s100x200/3d6519ced7c5f6964ac245447f857b3e7f7a2e52.gifv"></p>
 <img src="https://file.garden/ZuarN7GXMH8X3x96/IMG_20260820_214016.png">
